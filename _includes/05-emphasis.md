@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*If you want to have a brother*
+**Go home and fuk ur mother**
+_See **you** later masturbator_
